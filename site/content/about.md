@@ -23,3 +23,4 @@ This is an updated list of principles I am working to live by and strive to achi
 - Be Self-Motivated
 - Spread Joy & Laughter
 - Read 10 minutes a day
+- And lift some weights!!!
